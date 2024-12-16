@@ -1,2 +1,6 @@
 # kalders.be
-Website of Igor Kalders
+
+> Never stop learning
+
+* [LinkedIn](https://www.linkedin.com/in/igorkalders/)
+* [GitHub](https://github.com/GrimaceOfDespair)
