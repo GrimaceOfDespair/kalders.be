@@ -1,0 +1,11 @@
+# Zoekt, en gij zult vinden [Mattheus 7:7]
+
+Leve de digitalisering van de maatschappij. Als je tegenwoordig op zoek bent naar iets, hoef je maar even je "browser" open te klikken, en je bent nog slechts een paar toetsaanslagen verwijderd van je doel. Dat doel kan werkelijk alles zijn. Van tweedehandsmeubel tot afspraakje tot kernbom. Het staat er allemaal op.
+Stel nu bijvoorbeeld dat je in Limburg woont, en je graag zou aanpappen met een niet al te preuts meisje uit de provinciehoofdstad. Je bent zelf te mensenschuw om daarvoor naar buiten te komen, maar weet dat die meisjes daar ergens moeten zijn. Dan pak je je internetverkenner erbij, en Google je: "blote meisjes te hasselt".
+Tot je teleurstelling blijkt al snel dat je niet blindelings moet vertrouwen op techniek. Je klikt namelijk door en komt dan ineens op deze blog terecht die nu niet bepaald over Hasseltse nudistes verhandelt.
+Bij deze wil ik me dus verontschuldigen tegenover de persoon die hier schijnbaar terecht kwam met die zoekwoorden en, naar ik met grote zekerheid vermoed, niet aan zijn trekken kwam. Het spijt me dat ik een verkeerd zoekresultaat ben.
+Een ander nadeel aan internetzoekpraktijken, is de hoeveelheid informatie die er door te bladeren valt. Stel, je wilt een kernbom kopen, moet je die dan in Iran, Pakistan of misschien wel gewoon bij Israël gaan halen?
+Met eenzelfde soort probleem, zij het minder geladen, kampen Sandy en ik nu. We zijn op zoek naar een Ikea-kast die de keten om onbegrijpelijke redenen uit het assortiment heeft verwijderd. Honderden verkoopsadvertenties bekeken we op eBay, Marktplaats en aanverwanten, op zoek naar een valabel alternatief. Maar een tweedehandskast in onzekere staat gaan halen in Noord-Holland beschouwen we niet echt als een optie. Virtuele en reële afstanden liggen soms ver uit elkaar.
+
+
+Bij deze zou ik graag een oproep doen aan alle lezer(s): mocht u toevallig ergens een verlaten blauwe Mammut-kast van Ikea met 2 deuren tegenkomen (men maakt ze tegenwoordig alleen nog met enkele deur), laat hem dan niet in de kou staan, en geef hem onderdak bij ons. Wij zullen er goed voor zorgen, als was het voor ons eigen kind!

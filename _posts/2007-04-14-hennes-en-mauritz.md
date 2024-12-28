@@ -1,0 +1,18 @@
+# Hennes & Mauritz
+
+Leve de opwarming van de aarde. Het was nog nooit zo'n heerlijk weer halverwege april, dus mijnheer daar in uw hummer, duw nog eens op dat gaspedaal. George Bush, saboteer aub nog wat Kyoto-protocollen. Op de radio getuigt de weervrouw van "barbecueweer" (sic). Ik betwijfel of het in de van Dale staat, maar het is zo waar als een koe.
+In Maastricht zitten de terrassen afgeladen vol. Op eentje daarvan Sandy en ik ter gelegenheid van Sandy's verjaardag. Tussen ons een plastic zakje van de H&M.; Morgen organiseren we namelijk thuis wat bescheiden feestelijkheden, en het cliché wil dat een vrouw bij elke feestelijkheid een gepaste, per definitie nieuwe, outfit draagt. Volgens mij is dat eerder een aandoening, verwant aan OCS, maar welke man weigert een zwangere, jarige vrouw zulks?
+In de H&M; schuifel ik daarom gedwee achter Sandy aan.
+- Wat vind je hiervan?
+- Hmm...
+- Ja, wat hmm?
+- Het is wel ok
+- Niet dus
+- Jawel hoor
+- Je klinkt niet erg overtuigd
+Op dit scenario bestaan tientallen variaties waarin ik Sandy niet uitgelegd krijg dat ik de kleren mooi vind. Als ik niet wild enthousiast door de winkel begin te roepen hoe geweldig het haar wel niet staat, krijgt ze op de een of andere manier toch altijd de indruk dat er iets aan zou schorten.
+Toch slagen we erin een hoopvolle selectie voor de paskamer te maken. Van de winkeljuffrouw krijgen we een groot gekleurd kunststof label met het nummer 2 erop. Het is dat ik deze foltering al vaker heb moeten ondergaan, anders zou ik naarstig naar pashokje 2 beginnen zoeken. Een goed observator, wat ik niet ben, heeft echter allang bespeurd dat er van de labels 1 tot en met 5 wel twintig exemplaren beschikbaar zijn. Het zou dan potentieel wel erg druk kunnen worden in zo'n hokje.
+Nee, het is gewoon weer één van die geniale zetten van de winkelstrateeg. Het nummer slaat op het aantal kledingstukken dat je gaat passen, zodat de winkeljuffrouw kan zien dat je niet stiekem dat nieuwe t-shirt onder je kleren aan hebt.
+Ik neem stelling in het smalle gangetje terwijl Sandy een kleedkamer induikt. Uit een ander hokje komt een vrouw in haar midlife crisis tevoorschijn. Ze lacht erg voldaan, bijna hardop, en gooit de deur achter zich dicht. Een minuut of wat later verschijnt uit hetzelfde hokje ineens een jongetje van een jaar of 14 die een beetje bedrukt kijkt. Zonder kleren, of beter: hij heeft niets aan of vast waarvoor hij een kunststof label nodig heeft. Wat ik ook probeer, ik kan maar 1 verhaal verzinnen bij het vreemde tafereel, maar dat is strafbaar en ik wil die mensen niet in de problemen brengen.
+Niet veel later, als Sandy klaar is met passen, staan we in de lingerieafdeling, mijn persoonlijke favoriet. En vandaag nog veel meer, want er waart daar een claustrofobische vrouw rond. Tenminste, dat vermoed ik, want voor het passen van haar BH gaat ze niet op zoek naar zo'n beklemmend kleine kleedkamer. Nee, ze staat gewoon in haar Eva-shirt midden in de winkel de tietenhouder aan te meten. Uit plaatsvervangende schaamte, maar eigenlijk vooral bang voor een mep van Sandy, kijk ik maar even de andere kant uit. De vriend van de vrouw heeft beter beeld en knikt goedkeurend. Even overweeg ik: "ik vind hem te klein" te roepen, maar het lijkt me even niet verstandig.
+Mannen, u ziet. Zo af en toe loont het toch de moeite om aan vrouwlief toe te geven, en als een schoothondje mee de winkels af te struinen.

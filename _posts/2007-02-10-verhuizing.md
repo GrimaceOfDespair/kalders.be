@@ -1,0 +1,3 @@
+# Verhuizing
+
+Ziezo, na 2 dagen afwezigheid zijn we weer online. Voor de technisch onderlegde mensen: ik heb het domein verhuisd van Telenet naar een server van mijn werk in Duitsland, zodat ik meer mogelijkheden heb. Ik ben namelijk van plan wat meer te gaan doen met de techniek van de site, maar als het zover is, merkt de bezoeker dat vanzelf wel. Als er intussen wat meer interval tussen de verschillende schrijfsels verstrijkt, ligt dat dus daaraan.
