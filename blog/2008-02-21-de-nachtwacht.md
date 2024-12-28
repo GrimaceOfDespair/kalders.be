@@ -1,0 +1,17 @@
+# De Nachtwacht
+
+Omdat onze vereniging in een toestand van permanente geldnood verkeert en de alchemisten nog steeds geen goud uit lood hebben kunnen puren, hoereren wij onze diensten aan ieder die daar pecunia voor veil heeft. Bijvoorbeeld aan de plaatselijke carnavalsvereniging om drank te serveren terwijl de rest van het dorp feestviert. Afspraak in de lokale parochiezaal annex polyvalente feestgelegenheid.
+
+Dat verschijnsel parochiezaal is overigens wel een aparte alinea waard. Er was klaarblijkelijk een tijd dat zo'n etablissement symbool moest staan voor de vele kerkelijk getinte activiteiten die er plaats vonden. Nu is de meest uitgesproken kerkelijke tint jammer genoeg grijs en bovendien is frivoliteit een hoofdzonde. Om maar kort de contouren van de zaal te schetsen. Een kaars op een betonnen wegdek is al gezelliger dan de onderhavige ruimte.
+
+Terwijl het gebouw sinds jaar en dag aldus erbij ligt, evolueert de ooit zo ingetogen zaalkalender naar een meer mondaine agenda. Ik stel me zo voor dat pakweg 25 jaar geleden in parelwit gestoken communicantjes met platgekamde haren beleefd aanschoven voor de traditionele koude schotel met gekookte zalm. In schril contrast daarme trekken heden de alcoholdampen van de vele carnavalszittingen een verhullende waas rond de sfeerloze muren. Wie geen plezier maakt, is waarschijnlijk nuchter.
+
+Het is vandaag niet anders, op de dag van de lichtstoet. Terwijl we met een achttal vrijwilligers de dorstigen laven, geeft menig bezoeker zijn theewater het nakijken. Een geblondeerde kerel waagt een poging tot bestelling. Hij heeft blijkbaar de order opgenomen voor zijn hele vriendengroep, maar is vergeten dat communiceren tijdelijk niet meer tot zijn capaciteiten behoort. Hij zwaait met een blocnote en verduidelijkt: eenjz ... euh... havvm.. eeeeen... zjwtee pinjs... De bediening kan er niet zoveel van maken en tracht het papiertje te ontcijferen. Meteen wordt duidelijk waarom de man zo onverstaanbaar praat: hij leest letterlijk af wat hij heeft genoteerd.
+
+Een medewerkster ziet de bui al hangen en wenkt me met de suggestie dat ik de bestelling persoonlijk ga brengen. De man vindt dat gelukkig een goed idee en struikelt alvast terug naar zijn vrienden. Als ik even later kom aanzetten met bier, cola en combinaties daarvan, blijkt niet geheel tot mijn verbazing dat de decryptie van 's mans boodschap niet helemaal goed is gegaan. Ik keer terug naar de toog om de bestelling te corrigeren en ruil de mazout - dat is bier met cola - om voor een halfom bruin - dat is bier met bruin bier.
+
+In volle feestgedruis ligt een vage kennis voorhands zijn roes uit te slapen op een stoel. Hij hangt er in redelijk oncomfortable positie bij. Naast hem een kapotte fles wijn die mogelijk mede verantwoordelijk is voor die toestand. In zijn musketierskostuum lijkt de kerel zo weggelopen uit een schilderij van Rubens en dronken gestrand op een doek van Breughel. Wetende waar de arme ziel woont besef ik dat hij niet meer te voet thuis zal raken.
+
+De klok sluipt langzaam richting 3u00 terwijl menigeen zich een bewustzijnsvernauwing drinkt. Dan staat plots een agent in de zaal om vriendelijk een eind aan het feest te maken. Dat ene uniform lijkt echter niet echt indruk te maken, want vanwege burgerlijke ongehoorzaamheid blijft de dialectmuziek snoeihard uit de boxen knallen. De arme der wet keert een drietal keren terug voor hij gehoor vindt, of beter, geen gehoor meer vindt.
+
+Wie dan nog kan bewegen druipt af, de rest steunt op zijn vrienden. En wij, wij tellen ons geld.
