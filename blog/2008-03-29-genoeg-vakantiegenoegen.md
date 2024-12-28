@@ -1,0 +1,19 @@
+# Genoeg vakantiegenoegen
+
+Het is nog donker, maar toch staat er al iemand je aan de bedrand te sommeren: opstaan! Een pril ontluikende bedrijvigheid waart door het huis en komt in je nek hijgen, terwijl moeder reeds in de keuken boterhammen staat te beleggen (het is eens iets anders dan aandelen): kaas, chocopasta, ham, ... Witte ijzerlintjes tooien de dichtgesnoerde boterhammenzakjes. Met wat er aldus aan lunchpakket op het aanrecht ligt, kan een Bulgaars weeshuis een maand verder.
+
+Buiten staat de auto achterstevoren geparkeerd. Met open kofferdeksel staart het vehikel vol ongeloof een enorme stapel koffers aan: "Moet ik dat allemaal slikken?" Vader slaat desalniettemin verwoed aan het puzzelen en polst voor de zekerheid bij moeder of die beautycase echt helemaal mee moet.
+
+Na een halfuur gepas en gemeet blijft het kofferdeksel dicht zonder spanbanden en kan de grote tocht naar Het Zuiden beginnen. Ik wacht geduldig tot na die eerste kilometer, wanneer moeder ontdekt dat vader belangrijk item x vergeten is. Wiens verantwoordelijkheid dat daadwerkelijk is, blijft het komende halfuur nog voorwerp van vele discussies, maar de auto wordt onverrichterzake teruggestuurd naar Start.
+
+De expeditie is spannend en interessant. Of toch voor maximum een uur. Want autosnelwegen verschillen niet zo heel veel van elkaar, of ze nu in België of in Frankrijk liggen: trillende witte lijnen en kilometers glijdende vangrail. De enige animo die er af en toe ontstaat, heeft te maken met de te volgen route. Elke gemiste afslag doet namelijk de ergernis groeien bij beide partijen die de aansprakelijkheid zorvuldig doorschuiven naar elkaar. Het tafereel staat in schril contrast met de beleefdheid die een modern GPS-systeem van de Aldi tentoonspreidt: "Probeer alstublieft (sic!) om te draaien".
+
+Halverwege stokbroodland valt de avond. De natriumlichten langs de baan verven alle auto's wit, grijs of zwart. Vader loodst ons een snelwegparking op alwaar we in hoogst oncomfortabele posities met de hele familie de nacht in de wagen zullen doorbrengen. Ik sluit mijn ogen en zink in een niet erg diepe slaap. Wanneer ik midden in de nacht ontwaak, merk ik plots dat we langzaam vooruit bollen. In paniek schreeuw ik de rest van het gezin wakker om ongeveer even snel te ontdekken dat niet wij vooruit gaan, maar de vrachtwagen naast ons achteruit. Ik wens snel iedereen welterusten en knijp mijn ogen terug dicht.
+
+De volgende dag vervolgt de rit door de talloze peage-stations die Frankrijk rijk is. De Europese Economische Gemeenschap droomt op dat eigenste moment hardop van een gemeenschappelijke munt, de ECU, maar de Euro is nog in geen velden of wegen te bespeuren. We hopen dan ook allemaal dat vader genoeg Franse Francs heeft gewisseld om ook de terugweg te bekostigen.
+
+Als kind ben ik enorm verrast wanneer in ons Spaans hotel blijkt dat er nog Nederlandssprekende mensen rondlopen. Oke, het zijn dan wel "Hollanders", maar het blijven toch mensen. Ik besef in al mijn kinderlijkheid dan nog niet de grootschalige annexering van Spanje door Nederland. Wie in de jaren 80 ooit naar het Iberisch schiereiland reisde, weet exact wat ik bedoel.
+
+Verder laat ik even in het midden wie het topless zonnen heeft uitgevonden, maar de Nederlanders hebben het volgens mij tot een nationale sport verheven. Zo loopt er een vrouw rond in ons hotel die mijn vader kenschetsend Miet Hangtiet noemt. Worden hier reeds de wortels geplant van mijn voorliefde voor functioneel vetweefsel?
+
+De oncomfortabele autoreis, ruziënde ouders, strandzand tussen de sandwiches, zonevreemde voedsel, ... alle ingrediënten voor een traumatische ervaring zijn aanwezig. En hoewel ik de reis nooit meer onder dezelfde omstandigheden zou willen maken, voel ik alleen een warme nostalgie bij onze Spanje-vakanties. Toch die tieten misschien?

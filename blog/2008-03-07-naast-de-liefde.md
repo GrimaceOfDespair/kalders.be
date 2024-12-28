@@ -1,0 +1,19 @@
+# Naast de liefde
+
+Ik geef het niet graag toe, maar ik ben niet zo'n weldoener. Ik trek niet, zoals vadertje staat, jaarlijks een budget uit om liefdadig mee te zijn. Indirect dus weer wel via de belastingen, maar kom, laat ik niet al te populistisch wezen en zo mijn eigen deficiten verhullen.
+
+Misschien heeft het te maken met die bijtende onzekerheid over de bestemming van zo'n gift. Met genoeg pech koopt een Afrikaanse rebellenleider met jouw zuurverdiende centjes munitie voor zijn kindsoldaten. Anderzijds zou je ook wel eens de laatste bakstenen kunnen bekostigd hebben van die broodnodige waterput. Kortom, het is koffiedik kijken. Niet geven maakt je een onmens, wel geven een naïeveling.
+
+Veel eenvoudiger voor het geweten is het om dicht bij huis de knip op de beurs te houden. Wanneer je een smekende junk een euro geeft, weet je tenminste zeker dat-ie slecht besteed is. Het valt me zelfs niet zwaar zulks te weigeren aan die ene met zijn misvormd gezicht. Ik doe dat uiteraard vanuit maatschappelijk verantwoord burgerschap, in een poging om zeker niet de teloorgang van de maatschappij te financieren. Die teloorgang is overigens gelinkt aan de index, want vóór de invoering van de euro, werd je alleen voor guldens aangeklampt. Allicht zit de kiloprijs van heroïne ook in de lift.
+
+Maar wat dan met straatmuzikanten? Die ondernemen tenminste nog een vorm van arbeid voor hun geld. Evengoed kan echter die melodicaspeler voor de Albert Heijn over vijf minuten een fles Rum in de tent gaan kopen. Koffiedik kijken.
+
+Daarom wandel ik de man in eerste instantie voorbij. Laat ik nu echter in een bijzonder genereuze bui zijn en de kerel een euro gunnen (Goh, wat goed van mezelf. Weet je dat wel zeker? Een hele euro?). Terwijl ik door de automatische schuifdeuren de supermarkt binnensnel, neem ik me voor zo meteen wat wisselgeld in het bakje te werpen. Bij nader inzien heeft de straatartiest zich wel uitgelezen strategisch opgesteld: velen zullen hier buitenkomen met de beurs nog in de handen. Het doet niets af aan mijn voornemen.
+
+Ik struin aldus eerst wat rond in de tent waarvan iemand ooit heeft besloten dat-ie zou genoemd worden naar de oprichter. Nu, had ik Albert Heijn geheten, dat zou ik vanuit marketingtechnisch oogpunt zeker nooit mijn toko dienovereenkomstig noemen. Gelukkig heeft men mij nooit om advies gevraagd, want de erven Heijn berekenen hun fortuin tegenwoordig in termen van beursaandelen, terwijl ondergetekend het met maandelijkse geldstortingen moet doen.
+
+Met een brood en wat beleg schuif ik aan bij de kassa, als plots het smurfenlied redelijk hard uit de boxen schalt. Blijkbaar krijg je bij elke besteding van 25 euro een pluche smurf en die actie zet men graag autitief kracht bij. Bij de onmiskenbare tonen van het blauwe volkslied wordt mijn nostalgie jammer genoeg overstemd door de algemene aanblik van het disparate tafereel. Het strookt niet helemaal. Alsof het leger op de vogeltjesdans defileert. De stalen, onvertrokken gezichten schuiven één voor één langs de kassa, begeleid door een inept lalala.
+
+Men lijkt de de uitgebreide versie te spelen. Ik onderdruk daarom een vreugdekreet wanneer ik eindelijk de kassa bereik. Op het aangereikte briefgeld krijg ik wat muntstukken terug, ideaal om die schooiende musicus toe te werpen. Ik jakker wat inherent dralend winkelvolk voorbij en bevind mij even later voor de zaak, alwaar ik geen muziek hoor, noch een melodica ontwaar, laat staan een toonkunstenaar bespeur. Hij heeft waarschijnlijk ook blauw opgemerkt, zij het geen smurfen- maar uniformenblauw.
+
+Geen muziek, geen geld. Kijk, ik wil best wat naastenliefde tonen, maar dan eis ik op zijn minst een beetje medewerking. Tot zover dus mijn poging tot filantropie.
