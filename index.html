@@ -14,7 +14,7 @@ layout: default
 </div>
 
 <div class="container">
-	<div class="row">
+	<div class="row" data-infinite-scroll='{ "path": ".next-link", "append": ".article", "history": false }'>
 	{% if site.posts.size > 0 %}
 		{% for post in paginator.posts %}
 			{% include article-content.html %}
